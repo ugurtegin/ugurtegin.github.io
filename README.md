@@ -1,1 +1,0 @@
-# ugurtegin.github.io
